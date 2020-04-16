@@ -1,0 +1,1 @@
+dawid to przebog kozak
